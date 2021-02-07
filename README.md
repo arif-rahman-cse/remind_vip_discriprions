@@ -1,1 +1,1 @@
-![remider_vip_img](/uploads/-/system/personal_snippet/2072679/e6f4e4fe8c61df5cc8ce62fc6cf4a6b4/remider_vip_img.png)
+![remider_vip_img](https://drive.google.com/file/d/1NDwjK-dgx5gqT1aLNGOb4_d51SszCcSK/view?usp=sharing/remider_vip_img.png)
